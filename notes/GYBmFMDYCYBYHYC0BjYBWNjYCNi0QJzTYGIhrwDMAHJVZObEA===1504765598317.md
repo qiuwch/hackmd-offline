@@ -1,0 +1,7 @@
+# Deleted
+
+https://d2mxuefqeaa7sj.cloudfront.net/s_31EAA11E607664FE324D3C06FAD112BEE228ADA07AA9AE3E8180385B984ABF49_1494637686175_Blank+Diagram+-+Page+1.png
+
+https://lh5.googleusercontent.com/iJP8NgKiohqz53PxfRIVjz3UCcRLOvmivF5VHwAdnhh9EJXb7AZudSWFbFAIlAZZ_xt2oCejsK9uWcfTJInVER9CSbH3oJuirTbXo_LtFQuKGdpDbebNFTIQNUHzo7rtJsUew8BpLtI
+
+http://unrealcv.org/images/homepage_teaser.png
